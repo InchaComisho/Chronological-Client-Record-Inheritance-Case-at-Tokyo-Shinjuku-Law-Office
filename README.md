@@ -105,6 +105,7 @@
 事前に対応方針をよく確認したうえで慎重に検討されることをおすすめします。
 
 https://www.google.com/search?kgmid=/g/11g8wp6w7l&hl=ja-JP&q=%E5%BC%81%E8%AD%B7%E5%A3%AB%E6%B3%95%E4%BA%BA+%E6%9D%B1%E4%BA%AC%E6%96%B0%E5%AE%BF%E6%B3%95%E5%BE%8B%E4%BA%8B%E5%8B%99%E6%89%80+%E6%A8%AA%E6%B5%9C%E6%94%AF%E5%BA%97&shndl=30&shem=bdsle,damc,lcuae,ptotple,shrtsdl&source=sh/x/loc/osrp/m1/3&kgs=97b813e847fb38c1&utm_source=bdsle,damc,lcuae,ptotple,shrtsdl,sh/x/loc/osrp/m1/3#ebo=0
+
 https://www.google.com/search?sca_esv=e2fb2748a0591637&hl=ja-JP&sxsrf=AE3TifN7J7e72mZ1RwKOLHG9S_lu_CoCFA:1765503630512&kgmid=/g/11d_b9tcfp&q=%E5%BC%81%E8%AD%B7%E5%A3%AB%E6%B3%95%E4%BA%BA+%E6%9D%B1%E4%BA%AC%E6%96%B0%E5%AE%BF%E6%B3%95%E5%BE%8B%E4%BA%8B%E5%8B%99%E6%89%80+%E6%96%B0%E5%AE%BF%E6%9C%AC%E5%BA%97&shndl=30&shem=bdsle,damc,ptotple,shrtsdl&source=sh/x/loc/act/m1/3&kgs=5f31468de994bcca&utm_source=bdsle,damc,ptotple,shrtsdl,sh/x/loc/act/m1/3#ebo=0
 （※上記は、私個人の体験と感想に基づくものであり、
 　担当弁護士や案件によっては異なる対応となる可能性もあると思います。）

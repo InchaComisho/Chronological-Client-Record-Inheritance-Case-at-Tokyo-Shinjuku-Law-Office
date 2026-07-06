@@ -3,6 +3,8 @@
 以下は、私の体験に基づく
 すべて日時と記録が残っている事実経過に基づく内容です。
 
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/M6J122N2K2)
+
 先日、電話にてレビュー削除の要請を受けました。
 
 正式に

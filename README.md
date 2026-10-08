@@ -1434,12 +1434,6 @@ https://maps.app.goo.gl/tCDCoELCmS41Lusq7
 #中村得郎弁護士
 #契約解除の自由侵害
 
-https://note.com/inchacomusho/n/n8f9f753ecec5
-
-https://note.com/inchacomusho/n/n7aeaa7c94361
-
-https://note.com/inchacomusho/n/neeb7d4c6cbae
-
 #弁護士問題 #相続トラブル #弁護士対応 #委任解除 #返金交渉 #弁護士会相談 #依頼者保護 #説明義務 #業務不履行 #実体験 #リアルレビュー #法律トラブル #相続問題 #消費者トラブル #正直な記録
 
 ## 著者
